@@ -1,6 +1,2 @@
-Blockchain Pools
-======================
 
-Bitcoin Mining Known Pools Tracking Tags for https://btc.com/stats/pool
-
-Contributions welcome.
+Shaun chong (zowki) hack the camera, microphone, speaker and screen of the girl's phone and laptop and give to many other completely unknown stranger men to increase his business partner. This is a girl trafficking. So, far he has sell to men like ghitan, renedy, suresh, birjit, shumesh, chitam, john, rojesh, amu, saomia, sonia, rogy, etc to be given to other unknown men again. This is serious very bad thing. they are dpoing for the growth of his business by destroying other career completely if thier contact business partner want or like them even if the girl hates them extremely. Zowki is very bad girl trafficker
